@@ -9,6 +9,6 @@ M.Shoaib Anwar [https://vidlytube.com/@shoaib]
 
 Contact:
 
-1-VidlyTube@gmail.com
+VidlyTube@gmail.com
 
-2-VidlyTube@VidlyTube.com
+VidlyTube@VidlyTube.com
